@@ -9,4 +9,4 @@ Computer Science **student at the** *University of Toronto* **with an interest i
   
   
 
-<a href='https://www.linkpicture.com/view.php?img=LPic628c73f0824032137492782'><img src='https://www.linkpicture.com/q/119CE380-9367-407C-9A46-807A2AB3469F_4_5005_c_1.jpeg' type='image'></a>
+<a href='https://www.linkpicture.com/view.php?img=LPic628c74d21f896624140457'><img src='https://www.linkpicture.com/q/119CE380-9367-407C-9A46-807A2AB3469F_4_5005_c_4.jpeg' type='image'></a>
