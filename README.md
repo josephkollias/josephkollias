@@ -2,7 +2,7 @@
 
 Computer Science **student at the** *University of Toronto* **with an interest in the creative side of things**
 
-──⋆ꜰɪɴᴅ ᴍᴇ ᴀᴛ───────────  
+──ꜰɪɴᴅ ᴍᴇ ᴀᴛ───────────  
 🏠 ⋆ [lenafawaz.com](http://lenafawaz.com) *(website)*  
 📋 ⋆ [Lena Fawaz Mohammad](https://www.linkedin.com/in/lena-fawaz-mohammad-62016310b/) *(linkedin)*  
 📸 ⋆ [@hack.h.er](http://instagram.com/hack.h.er) *(instagram)*  
