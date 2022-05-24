@@ -6,6 +6,11 @@ Computer Science **student at the** *University of Toronto* **with an interest i
 🏠 ⋆ [lenafawaz.com](http://lenafawaz.com) *(website)*  
 📋 ⋆ [Lena Fawaz Mohammad](https://www.linkedin.com/in/lena-fawaz-mohammad-62016310b/) *(linkedin)*  
 📸 ⋆ [@hack.h.er](http://instagram.com/hack.h.er) *(instagram)*  
+─────────────────  
+  
+  
+
+<a href='https://www.linkpicture.com/view.php?img=LPic628c6ecd73547905764992'><img src='https://www.linkpicture.com/q/A370E615-4447-49E6-9296-EDA461D1D3EC_4_5005_c.jpeg' type='image'></a>
 
 
 
